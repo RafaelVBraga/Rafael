@@ -1,3 +1,3 @@
-![Profile](https://user-images.githubusercontent.com/48054827/168162625-038bde83-8454-4e31-968e-9232bf626343.jpg)
+![Profile](https://user-images.githubusercontent.com/48054827/168163378-e45e17e1-3248-4c80-b2bf-79b67baabf62.jpg)
 # Rafael Vieira Braga
 
